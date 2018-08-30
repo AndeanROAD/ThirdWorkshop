@@ -6,3 +6,7 @@
 
 * Carlos Gabriel. COSPAR capacity building program. Podemos tener uno en Bolivia? Ya hay hecho uno en Ecuador.
 
+* Heidi Korhonne. OPTICON. Escuelas para estudiantes. www.astro-opticon.org, las escuelas son en Europa. Quiere mas participantes
+de otros paises. Contactarla.
+
+* 
