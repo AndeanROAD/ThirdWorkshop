@@ -9,4 +9,6 @@
 * Heidi Korhonne. OPTICON. Escuelas para estudiantes. www.astro-opticon.org, las escuelas son en Europa. Quiere mas participantes
 de otros paises. Contactarla.
 
-* 
+* Selma SYLLA. Exploring the univese from west africa. Estudiante de doc en Belgica. Experiencias midiendo impactos en Jupiter desde West Africa.
+
+
