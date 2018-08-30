@@ -13,3 +13,5 @@ de otros paises. Contactarla.
 
 * Christopher Corbett. Vatican Observatorio. Teatro Astronomico para la escuela.
 
+* Berenice Himmelfarb. Contacto para las traducciones y grabaciones con Muipu. 
+
