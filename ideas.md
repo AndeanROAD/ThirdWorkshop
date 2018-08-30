@@ -11,4 +11,5 @@ de otros paises. Contactarla.
 
 * Selma SYLLA. Exploring the univese from west africa. Estudiante de doc en Belgica. Experiencias midiendo impactos en Jupiter desde West Africa.
 
+* Christopher Corbett. Vatican Observatorio. Teatro Astronomico para la escuela.
 
